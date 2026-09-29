@@ -6,7 +6,7 @@
 - 🎃 Atualmente fazendo uma loja online
 - 📫 Contate-me no email: santana.gabrielalve@gmail.com
 - 😄 Pronomes: ele/dele
-- 🐧Aluno da Aluara
+- 🐧Aluno da Alura
 
 ##
 
